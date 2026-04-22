@@ -29,4 +29,4 @@
 ## Ссылки
 
 - Сайт: https://marmelad.digital/
-- Почта: info@marmelad.ru
+- Почта: marmeladigital@ya.ru
